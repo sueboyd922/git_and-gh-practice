@@ -1,0 +1,1 @@
+I had been working in the service industry for over a decade and I was ready to try something new. It was just time and after people suggested I might like coding I looked into it and thought it seemed great plus the idea of flexible location for a job sounds amazing!ß
